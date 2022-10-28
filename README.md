@@ -1,6 +1,6 @@
 # Background Colors for Computer Screen
 
-[![Background Colors for Computer Screen](blue.png)](https://icncomputer.com/background-colors-for-computer-screen/)
+[![Background Colors for Computer Screen](blue.png)](https://computer-solved.com/background-colors-for-computer-screen/)
 
 A collection of the top 46 Colors Desktop wallpapers and backgrounds available for download for free. We hope you enjoy our growing collection of HD images to use as a background or home screen for your smartphone or computer. Please contact us if you want to publish a Colors Desktop wallpaper on our site.
 
